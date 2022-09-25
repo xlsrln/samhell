@@ -1,3 +1,5 @@
+<html>
+
 <blockquote class="twitter-tweet"><p lang="sv" dir="ltr">Hur länge har vi vetat det här nu? Hur usla kan friskolorna vara? Varför blir de inte bättre än såhär? Bedrövligt. <a href="https://t.co/qnqyow6Zd0">https://t.co/qnqyow6Zd0</a></p>&mdash; Björn Dahlman 🇸🇪🤘🔰 (@dahbjo) <a href="https://twitter.com/dahbjo/status/1574112956555661312?ref_src=twsrc%5Etfw">September 25, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
 
 <blockquote class="twitter-tweet"><p lang="sv" dir="ltr">De senaste tolv månaderna har bensinpriset stigit med cirka 30 procent – och under 2000-talet har bensinen blivit över 70 procent dyrare. Samtidigt har biljettpriserna i lokaltrafiken stigit nästan dubbelt så mycket sedan år 2000.<a href="https://t.co/D8goGip6Yd">https://t.co/D8goGip6Yd</a> <a href="https://t.co/Y2aLAfcKCC">pic.twitter.com/Y2aLAfcKCC</a></p>&mdash; SCB (@SCB_nyheter) <a href="https://twitter.com/SCB_nyheter/status/1505859015317897219?ref_src=twsrc%5Etfw">March 21, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
