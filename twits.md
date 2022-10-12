@@ -16,6 +16,14 @@ Region stockholm tystar anställda under valrörelsen
 
 https://twitter.com/KarlssonMax/status/1574279875741057024
 
+Så undviker Kry de dyra patienterna
+
+https://twitter.com/dahbjo/status/1579917447377096704
+
+Inkomstskillnader går upp när facklig aktivitet går ner
+
+https://twitter.com/danielswedin/status/1580069278149054464
+
 ## transport, bilar
 
 Biljettpriserna i lokaltrafiken har ökat mycket mer än bensinpriset 
